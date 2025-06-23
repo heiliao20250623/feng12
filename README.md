@@ -23,7 +23,7 @@
 
 点击访问：<a href="https://cg10-46.pages.dev/">51在线吃瓜</a>
 
-点击访问：<a href="https://dy7-08.pages.dev/">91抖音</a>
+点击访问：<a href="https://hl74.pages.dev/">黑料社区永久</a>
 
 点击访问：<a href="https://aw7-06.pages.dev/">暗网TV官网</a>
 
@@ -43,7 +43,7 @@
 
 点击访问：<a href="https://aw8-06.pages.dev/">暗网视频</a>
 
-点击访问：<a href="https://dy2-01.pages.dev/">91抖音</a>
+点击访问：<a href="https://hl104.pages.dev/">黑料门</a>
 
 今日黑料
 
